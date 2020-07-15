@@ -1,7 +1,0 @@
-idddddddddddddddaaaaaaaaaaaaaaaaaaaaaaaccccccc
-aaaaaaaaaaaaaasssssssss
-ddddddddddddddddf
-ffffffffffffffffa
-aaaaaaaaaaaaas
-ssssssssssssssssf
-ssssssssssssss
