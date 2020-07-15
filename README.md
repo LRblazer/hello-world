@@ -1,7 +1,2 @@
 # hello-world
-my_test_first_github
-123ddddddddddddddddddddddddddddddddddddd
-aaaaaaaaaaaaaaaaaaaaaaaaaaa
-ccccccccccccccccc
-aaaaaaaaaaaaaa
-dddddddddd
+my
